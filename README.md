@@ -1,1 +1,1 @@
-# PlantVillage-Propsed
+# PlantVillage-Proposed
